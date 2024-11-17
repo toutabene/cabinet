@@ -1,2 +1,0 @@
-# cabinet
-cabinet medical duclos
